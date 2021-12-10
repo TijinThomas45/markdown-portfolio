@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+MY HOBBIES ARE
+
+* Watching Movies
+* Playing footbal,volleyball,cricket etc.
+  * Readinng short stories
+  * Listenind to music
